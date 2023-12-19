@@ -5,9 +5,9 @@
 - 📫 How to reach me Skype
 - 👁️‍🗨️ I'm creative Director in Mode and Jewelry 
 - ✨ My family and me are healthy and happy
-- 🛍️ we are rich 
+- 🛍️ We are rich of love, money, health, happiness, family and real friends 🛍️
 - 🍀 I study at BERKELEY
-- 🦋 we stay good 🦋
+- 🦋 We stay good 🦋
 - ✨ My manifestations are unfolding ✨
 ...
 
