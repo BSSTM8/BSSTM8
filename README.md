@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning the most I am capable 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Skype
-- 👁️‍🗨️ I'm creative Director and rich 
+- 👁️‍🗨️ I'm creative Director in Mode and Jewelry 
 - ✨ My family and me are healthy and happy
 - 🛍️ we are rich 
 - 🦋 we stay good 🦋
