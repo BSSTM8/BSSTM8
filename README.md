@@ -6,7 +6,9 @@
 - 👁️‍🗨️ I'm creative Director in Mode and Jewelry 
 - ✨ My family and me are healthy and happy
 - 🛍️ we are rich 
+- 🍀 I study at BERKELEY
 - 🦋 we stay good 🦋
+- ✨ My manifestations are unfolding ✨
 ...
 
 <!---
