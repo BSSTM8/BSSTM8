@@ -1,8 +1,13 @@
 - 👋 Hi, I’m @BSSTM8
-- 👀 I’m interested in creative wirk
-- 🌱 I’m currently learning the moat I can
+- 👀 I’m interested in creativity
+- 🌱 I’m currently learning the most I am capable 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me Skype
+- 👁️‍🗨️ I'm creative Director and rich 
+- ✨ My family and me are healthy and happy
+- 🛍️ we are rich 
+- 🦋 we stay good 🦋
+...
 
 <!---
 BSSTM8/BSSTM8 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
